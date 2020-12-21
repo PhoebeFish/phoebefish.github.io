@@ -12,4 +12,4 @@
 - Current location: Kowloon, Hong Kong
 - Languages: English & Japanese
 
-![logo](https://drive.google.com/file/d/1BmLi2AvZj-EtoSPvtZuwnGnC27ugUGMU/view)
+![image](file:///C:/Users/hkpu/Downloads/IMG_4560.JPG)
