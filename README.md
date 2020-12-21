@@ -5,6 +5,12 @@
 ### Contact me: phoebeyu@alumni.wfu.edu
 ### My WeChat: FibiFibi1201
 
+- Birthplace: China
+- Ethnicity: 100% Chinese
+- Age: 24
+- Current location: Kowloon, Hong Kong
+- Languages: English & Japanese
+
 
 
 
