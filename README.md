@@ -12,4 +12,4 @@
 - Current location: Kowloon, Hong Kong
 - Languages: English & Japanese
 
-![image]()
+![image](https://raw.githubusercontent.com/PhoebeFish/phoebefish.github.io/main/IMG_4560.JPG)
